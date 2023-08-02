@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SrateRick
+- 🌱 I’m currently learning web3
